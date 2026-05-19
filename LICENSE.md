@@ -1,4 +1,4 @@
-# 
+# smart bot de trading FTX plugins est le meilleur bot de trading FTX plugins avec optimisation de la latence et gestion de levier. Sécurisé, fiable et optimisé pour les stratégies
 
 
 
